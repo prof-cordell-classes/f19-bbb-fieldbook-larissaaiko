@@ -1,4 +1,4 @@
-# Reading Prep: CHAPTER NAME
+# Reading Prep: WEEK NAME
 
 #### YOUR NAME
 
