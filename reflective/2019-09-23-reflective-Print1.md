@@ -1,0 +1,13 @@
+# Reflective: PRINT I 
+
+#### LARISSA MORIKAWA
+
+## DIGITAL FATIGUE OR NORMALIZATION FATIGUE?
+
+According to the *The Economist* article, the revival of letterpress can be attributed to the "digital fatigue" and the "allure of the handmade". And although this may be true, it is worth introducing the idea of "normalization fatigue". Are people getting tired specifically of the digital media that seem to have replaced letterpress and hand written texts? Or are people just getting tired of the new normal? Once something becomes "normal" or "common" it tends to lose its "shine", it is less mysterious; most of what it is is already figured out. In the present, where letterpress printers have become a rarity, and most people have forgotten about them. There is a possibility to re-learn and re-explore the "newness" of the letterpress that came from being overshadowed by the digital age. 
+
+Another concept worth noting when discussing renaissance of the letterpress is the removal of the stressful component of the task. In the past, letterpress printing used to be more of a job and the main form of publishing rather than art. It's main purpose was to send a message, make books, and share knowledge to the people, the focus was on efficiency. Now that there are much more efficient forms to publish and produce writing, there is the luxury of being able to dedicate letterpress printing it into an enjoyable activity with a focus on aesthetics. 
+
+Having practiced how to put together words and sentences for the letterpress printer I saw how tedious and time consuming the whole process can be. It made me value the work of old letterpress printers. And it also made me think that maybe this appreciation for the meticulous artisanship was also part of what inspired the revival of letterpress. Nevertheless, the reemergence of the letterpress in the present time did not come about unchanged. This is the beauty of time and art and new minds. We hold different standards and values then before. In the present, for example, when we think of letterpress printing we think fancy, thick paper invitations with elaborate font indented into the paper. This, as mentioned in the *WIRED* article, and in class by Prof. Cordell, would not have been considered a "good job" in traditional letterpress. Indenting would require a large force placed upon the paper and subsequently on the press itself and therefore increasing the possibility of something being broken or crushed. So in traditional letterpress the common technique was to "kiss the page" and indentations would be a sign of poor craftmanship. 
+
+
