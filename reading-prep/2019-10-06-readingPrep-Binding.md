@@ -23,4 +23,10 @@
 	Layflat binding reminds me of the board books that they have for kids.
 	
 3. I wonder what Zachary Petit's article, “Letterpress Goes for a Hike: The Printed Walk” has to do with binding? I thought the article was interesting and Lindsay's kickstarter project was very creating but I don't think it related much to binding. The word "binding" isn't even mentioned once in the entire article. I wonder if she ever got Lyme disease. Overall, interesting article to read but failed to understand the relevance of it to this week's topic of "binding". 
-
+	Update: Would Lindsay be considered a writer? With what she created, is she a writer or an artist?
+	
+	
+	Notes: 
+		- Marx's manifesto. 
+		- media clashing with the story. 
+		- "The name of this book is secret"
